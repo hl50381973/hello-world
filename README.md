@@ -6,4 +6,4 @@ Hi huangliang!
 nice to see you
 
 
-I am writing to inquring ....
+I am writing to inquring that my skill is good?
